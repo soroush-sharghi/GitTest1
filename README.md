@@ -1,1 +1,1 @@
-Singularity in real life.
+Singularity in life.
